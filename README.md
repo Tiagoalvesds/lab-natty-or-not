@@ -51,3 +51,5 @@ Chegou o momento de você conhecer nosso assistente virtual Prósper. Eaí? Tá 
 **Desvalorização do Patrimônio:** A falta de investimentos e a má alocação de recursos podem resultar na perda de valor do patrimônio ao longo do tempo, especialmente em períodos de inflação.
 
 **Dificuldade em Planejar o Futuro:** A ausência de um planejamento financeiro pode dificultar a realização de sonhos e objetivos de longo prazo, como a aposentadoria ou a compra de **SUA LIBERDADE FINANCEIRA**.
+
+**#LabDIONattyOrNot**
